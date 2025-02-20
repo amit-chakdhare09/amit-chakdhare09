@@ -1,4 +1,4 @@
-# 💫 I'm Amit Chakdhare
+# 💫👋 I'm Amit Chakdhare
 🔭 I’m currently working on Advanced Space Mission Explorer <br>🌱 I’m currently learning Artificial Intelligence<br>
 
 
